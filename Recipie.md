@@ -1,0 +1,13 @@
+- Wash the shrimps and devain them
+- Prepare some avacadoes by cutting them into small strips
+- Mix some club soda with some flour to create a goopy consistancy liquid
+- In another bowl mix some flour with a pinch of paprika and salt
+- Dip the prawn in the goopy liquid
+- And coat it with the dry flour mixture
+- After this deep fry the shrimps for atleast 8 minutes
+- While the shrimp is frying, clean the sticky rice and coil in hot water until all the water evaporates
+- Once your rice and shrimps are done cooking, layout the nori sheet and dab some rice vinnegar on the edge of the sheet
+- Add some rice vinnegar to the rice and lay it out on the nori sheet
+- In the center then add your shrimps and some avacadoes
+- Roll the sushi and cut it into small pieces
+- Now enjoy your sushi!!

@@ -1,0 +1,10 @@
+- nori sheets
+- sticky rice
+- club soda
+- flour
+- paprika
+- japanese moyonaise
+- Prawn
+- salt
+- rice vinnegar
+- Avacadoe
